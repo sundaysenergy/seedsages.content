@@ -1,0 +1,1 @@
+"SAGE" to become wise through experience. We offer various levels of training (basic to breeder) over the course of guided, experiential course/fieldwork. At the end of the time with us, we hope that each participant will know how to steward at least one plant type and graduate with the honors of a Seed Sage.
